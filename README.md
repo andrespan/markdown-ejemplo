@@ -15,6 +15,8 @@ los gatos son titulos, entre mas gatos mas pequeños
 [jscape] https://www.jscape.com/blog/how-to-ftp-a-file
 
 👀 🐈‍⬛ (❁´◡`❁)(●'◡'●)╰(*°▽°*)╯
+con windows+ se despliegan todos los stickers
+[space artistics](fig/)
 
 
 
