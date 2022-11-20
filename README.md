@@ -12,7 +12,7 @@ los gatos son titulos, entre mas gatos mas pequeños
      2. hola
 
 ### links
-[jscape] (https://www.jscape.com/blog/how-to-ftp-a-file)
+[jscape](https://www.jscape.com/blog/how-to-ftp-a-file)
 
 👀 🐈‍⬛ (❁´◡`❁)(●'◡'●)╰(*°▽°*)╯
 con windows+ se despliegan todos los stickers
