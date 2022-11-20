@@ -16,7 +16,7 @@ los gatos son titulos, entre mas gatos mas pequeños
 
 👀 🐈‍⬛ (❁´◡`❁)(●'◡'●)╰(*°▽°*)╯
 con windows+ se despliegan todos los stickers
-[space artistics](fig/)
+![space artistics](fig/Artist's_conception_of_Sedna.jpg)
 
 
 
